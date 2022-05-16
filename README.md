@@ -1,7 +1,7 @@
-# 茶馆儿破解版最新下载地址（2022年5月6日更新）
+# 茶馆儿破解版最新下载地址（2022年5月16日更新）
 
 ### 点击以下链接进入下载页：
-### [下载1](https://didi.aff004.app/aff-D8KF)<br> 
+### [下载1](https://cg.aff004.net/?code=U2ZB)<br> 
 ### [下载2](https://cg.fyicrn.com/?code=U2ZB)<br>
 每天签到即可解锁资源
 
